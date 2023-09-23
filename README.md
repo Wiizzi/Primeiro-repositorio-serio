@@ -1,2 +1,0 @@
-# Primeiro-repositorio-serio
-Lesgo
